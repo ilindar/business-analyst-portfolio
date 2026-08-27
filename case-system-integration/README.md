@@ -24,4 +24,4 @@
 
 ## Контакты
 📧 ilindar95@mail.ru  
-💬 [Telegram](https://t.me/karakorka)
+💬 [Telegram](https://t.me/ilindar95)
